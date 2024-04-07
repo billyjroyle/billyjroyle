@@ -23,6 +23,12 @@ I've spent the last 5 years in the serviced office and co-working industry 🏢 
 
 If you're looking for a beginner to collaborate with 😍 or even work with 😎 I'm you're guy - connect with me on [LinkedIn](https://www.linkedin.com/in/billy-r-43a4427a/)
 
+Always remember...
+
+> You can have data without information, but you cannot have information without data.
+
+Daniel Keys Moran
+
 <!--
 **billyjroyle/billyjroyle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
